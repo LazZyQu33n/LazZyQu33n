@@ -8,6 +8,6 @@ Welcome To My World
 [![@LazZyQu33n](https://github.com/LazZyQu33n/LazZyQu33n/blob/main/Resources/LyQ.png)](https://github.com/HentaiCafe) 
 
 
-Copyright © [@HentaiCafe](https://github.com/HentaiCafe)
+Copyright © [@HentaiiCafe](https://github.com/HentaiiCafe)
 
 <!-----{ Copyright © @LazZyQu33n }---->
