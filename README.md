@@ -5,9 +5,9 @@
 Welcome To My World
 <br>
 
-[![@LazZyQu33n](https://github.com/LazZyQu33n/LazZyQu33n/blob/main/Resources/LyQ.png)](https://github.com/HentaiCafe) 
+[![@LazZyQu33n](https://github.com/LazZyQu33n/LazZyQu33n/blob/main/Resources/LyQ.png)](https://github.com/HentaiCollator) 
 
 
-Copyright © [@HentaiiCafe](https://github.com/HentaiiCafe)
+Copyright © [@HentaiiCafe](https://github.com/HentaiCollator)
 
 <!-----{ Copyright © @LazZyQu33n }---->
